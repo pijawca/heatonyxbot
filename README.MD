@@ -1,4 +1,4 @@
-![logo](https://i.ibb.co/8K5msVP/template-heatonyx.jpg)
+![logo](https://i.ibb.co/1vq0QxR/template-heatonyx.jpg)
 
 >![preview](https://i.ibb.co/RbwPGzH/2023-02-09-18-55-46.png) <font size="1"> P.S соответствующий код может отличаться от скриншота.</font>
 
